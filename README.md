@@ -2,4 +2,4 @@
 Hi, I'm dimden. I'm coding some random stuff.  
   
 Website: [https://dimden.dev/](https://dimden.dev/)  
-Discord: [https://discord.gg/k4u7ddk](https://discord.gg/k4u7ddk)  
+Discord: [https://discord.gg/5jm5P3SJF3](https://discord.gg/5jm5P3SJF3)  
